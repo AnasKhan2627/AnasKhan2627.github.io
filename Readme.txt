@@ -1,1 +1,1 @@
-VIEW THE WORK HERE  <a href="https://anaskhan2627.github.io/">CLICK</a>
+VIEW THE WORK HERE  https://anaskhan2627.github.io/
